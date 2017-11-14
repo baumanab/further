@@ -14,4 +14,12 @@
 - Sounder
 - Bauman Family Farms
 - Train Ride to Levenworth
-
+- Kids Museum Tacoma
+- Jetty Island
+- Winter cabin rental
+- sledding
+- bus ride for Reidy
+- Discovery Playland
+- Safari (NW trek)
+- Polar Express
+- Train to Leavenworth (winter train)
