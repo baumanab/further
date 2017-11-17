@@ -23,3 +23,8 @@
 - Safari (NW trek)
 - Polar Express
 - Train to Leavenworth (winter train)
+- Golden Gardens
+- Magnuson Wetlands
+- Landover woods trail
+- Nature hike kids
+

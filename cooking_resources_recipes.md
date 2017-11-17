@@ -8,4 +8,4 @@
 ## Recipes
 
 - [Pressure Cooker Spanish Rice](http://www.pressurecookingtoday.com/quick-and-easy-spanish-rice)
-- [Vanny Steak](recipes/vanny_steak.md)
+- [Vanny Steak](recipes/vanny_steak.md
