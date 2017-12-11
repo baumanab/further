@@ -19,7 +19,7 @@
 - Winter cabin rental
 - sledding
 - bus ride for Reidy
-- Discovery Playland
+- [Discovery Playland](http://www.discoveryplaytown.com/discover)
 - Safari (NW trek)
 - Polar Express
 - Train to Leavenworth (winter train)
@@ -27,4 +27,8 @@
 - Magnuson Wetlands
 - Landover woods trail
 - Nature hike kids
-
+- Feed Giraffes
+- Easter Egg Hunt
+- [Top Seattle Playground](http://redtri.com/seattle/seattles-top-10-playground-kids/)
+- [More Cool Seattle Playgrounds](https://www.parentmap.com/article/adventure-playgrounds-thrilling-swings-zip-lines-slides-around-seattle)
+- Rent a boat
