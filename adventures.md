@@ -33,3 +33,6 @@
 - [More Cool Seattle Playgrounds](https://www.parentmap.com/article/adventure-playgrounds-thrilling-swings-zip-lines-slides-around-seattle)
 - Rent a boat
 - Weekend in Edmonds
+- [42 Cabin Getaways](https://www.sunset.com/travel/cabins?utm_campaign=sunsetmagazine&utm_source=facebook.com&utm_medium=social&xid=sunset-magazine_socialflow_facebook#cabins_11)
+- Make Dixie Cup Frozen Yogurt or other Frozen Treats (sorbe etc)
+- [Trout Farm](http://www.seattleschild.com/Gold-Creek-Trout-Farm-Seattle-Area-Fishing-for-Kids/)
