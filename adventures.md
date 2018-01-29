@@ -36,3 +36,4 @@
 - [42 Cabin Getaways](https://www.sunset.com/travel/cabins?utm_campaign=sunsetmagazine&utm_source=facebook.com&utm_medium=social&xid=sunset-magazine_socialflow_facebook#cabins_11)
 - Make Dixie Cup Frozen Yogurt or other Frozen Treats (sorbe etc)
 - [Trout Farm](http://www.seattleschild.com/Gold-Creek-Trout-Farm-Seattle-Area-Fishing-for-Kids/)
+- [Lichton Springs Park](https://www.seattle.gov/parks/find/parks/licton-springs-park)
