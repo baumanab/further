@@ -14,3 +14,4 @@
 - [Los Pollos Hermanos](https://www.yelp.com/biz/los-pollos-hermanos-shoreline-2)
 - [Stove-top burgers](https://www.wikihow.com/Cook-Hamburgers-on-the-Stove)
 - [Pressure Cooker Chinese Red Chicken Thighs](https://www.dadcooksdinner.com/pressure-cooker-chinese-red-cooked-chicken-thighs/)
+- [Pressure Cooker Chinese Ribs](https://www.dadcooksdinner.com/pressure-cooker-chinese-ribs/)
